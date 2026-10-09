@@ -1,4 +1,4 @@
-# Hi, I'm Sanjeev Prasad Shankar 👋
+# Hi, I'm Sanjeev Prasad S👋
 
 🚀 BTech AI & Data Science student | Freelance Developer | ML Enthusiast
 
